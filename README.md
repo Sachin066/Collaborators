@@ -9,7 +9,7 @@
 5. cliftonlobo09@gmail.com
    
 5.Name: Nirav
-Batch: TYIT(2021-24)
+Batch: BSc (IT) (2021-24)
 E-mail: gohilnirav222@gmail.com
 
 6. Name: Aniket Tiwari
